@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Qitogitlet
 - 👀 I’m interested in ... sleeping
-- 🌱 I’m currently learning ... how to sleep
-- 💞️ I’m looking to collaborate on ... with my bed
 - 📫 How to reach me ... don't
 - 😄 Pronouns: fck/u
 - ⚡ Fun fact: ...i'm tired
